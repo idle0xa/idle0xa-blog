@@ -1,1 +1,0 @@
-# idel0xa-blog
